@@ -17,5 +17,5 @@ The above techniques do not require specific coding schemes and thus are quite g
 
 
 
-  Contact: xiaoqiangpei@nudt.edu.cn, xufangliang@nudt.edu.cn, wwyyjj1971@vip.sina.com, quanyongf@gmail.com
+  Contact: xiaoqiangpei@nudt.edu.cn, xuflnk@nudt.edu.cn, wwyyjj1971@vip.sina.com, quanyongf@gmail.com
 
